@@ -8,7 +8,7 @@ I get up at 9 and drink some Keurig coffee with sweet cream creamer.
 
 I get ready for the day, specifically, showing my face on Zoom.
 
-After my Software Development class, I either nap or do homework for my other class.
+After my Software Development class, I either nap or do homework for my other class. In software dev, Betsy usually asks me for help (hey, it's Betsy)
 
 Then, I go to my other class for the day, which is a sociology class about children.
 
