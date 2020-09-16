@@ -1,0 +1,2 @@
+A day in the life of Betsy. I am going to write this in first person, which is honestly lowkey a shitty perspective to write a story, but so much easier to use.
+First, I wake up, ideally before 8am. I walk to the bathroom and take out my top and bottom retainers. When that's done, I head to the kitchen. Becca, my housemate, is usually also up. We fill the stovetop percolator and brew some coffee. Then I sit on my computer for 12 hours and go to bed.
